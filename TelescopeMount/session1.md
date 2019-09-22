@@ -2,6 +2,5 @@
 The team is delighted by the jolly nature and equally informative talk by the speaker Dr. Parminder Singh.
 We would like to express our gratitude for this opportunity and we feel inspired for the future projects😄
 
-# OsaIgdtuw.github.io
 
 
